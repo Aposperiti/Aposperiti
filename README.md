@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Aposperiti
-- 👀 I’m interested in art
-- 🌱 I’m currently learning 3d sculpting
+- 👀 I’m interested in all aspects of art
 - 💞️ I’m looking to collaborate on an interesting "artsy" project
 - 📫 How to reach me follow me on Instagram @aposperiti
 
